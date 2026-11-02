@@ -1,1 +1,1 @@
-> ⭐ **If these guides help you, please star this repo and follow me on [GitHub](https://github.com/your-username) and [LinkedIn](https://www.linkedin.com/in/mehak-hussain-bcitian-neduet/)!** It helps the pack reach more IELTS learners.
+> ⭐ **If these guides help you, please star this repo and follow me on [GitHub](https://github.com/mehak-hussain) and [LinkedIn](https://www.linkedin.com/in/mehak-hussain-bcitian-neduet/)!** It helps the pack reach more IELTS learners.
